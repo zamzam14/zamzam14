@@ -54,7 +54,7 @@ Learning something new every day and turning ideas into real projects! 💡
 ## 📫 Contact Me
 
 - LinkedIn: `<https://www.linkedin.com/in/zamzam-al-balushi-593a252b0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app>`
-- Email: `<zmzm20006@gmail.com>`
+- Email: `<zamzamissa2000@gmail.com>`
 
 ---
 
